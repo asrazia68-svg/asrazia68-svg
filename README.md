@@ -34,8 +34,6 @@ Learning & building AI-powered projects to solve real-world problems
 
 🚀 Aspiring **AI Innovator & Researcher**  
 
-#
-⭐ “Consistency beats talent when talent doesn’t work hard.”
 
  
 
